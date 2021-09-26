@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @xsshii
+- 👋 Hi, I’m Shishi 
 - 👀 I’m interested in Business & Marketing Analysis
 - 🌱 I’m currently learning Commerce(Marketing & Information Systems) at UNSW Sydney
 - 💞️ I’m looking to collaborate on any projects 
